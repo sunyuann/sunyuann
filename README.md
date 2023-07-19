@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sunyuann
 - 👀 I’m interested in coding
 - 🌱 I’m currently studying Computer Engineering
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on any projects, HMU!
 - 📫 How to reach me : lumsunyuan2001@gmail.com
 
 <!---
