@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sunyuann
+- 👋 Hi, I’m Shaun!
 - 👀 I’m interested in coding
 - 🌱 Software Engineer
 - 💞️ I’m looking to collaborate on any projects, HMU!
